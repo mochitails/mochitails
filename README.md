@@ -1,21 +1,24 @@
-### ., heeey! ✨
+### ., нєєєγ! ✨
 hi im mochi!!
 
-introvert
+ɪɴᴛʀᴏᴠᴇʀᴛ
 
 -+ ☁️
 
-im not that sensitive at all so dark humor doesnt upset me too much
+ɪᴍ ɴᴏᴛ ᴛʜᴀᴛ sᴇɴsɪᴛɪᴠᴇ ᴀᴛ ᴀʟʟ sᴏ ᴅᴀʀᴋ ʜᴜᴍᴏʀ ᴅᴏᴇsɴᴛ ᴜᴘsᴇᴛ ᴍᴇ ᴛᴏᴏ ᴍᴜᴄʜ ✰
 
-often chillin with my friends! 🩵
+ᴏғᴛᴇɴ ᴄʜɪʟʟɪɴ ᴡɪᴛʜ ᴍʏ ғʀɪᴇɴᴅs! 🩵 ✰
 
-i go offtab quite a bit {ill sometimes use my afk/offtab pony}
+ɪ ɢᴏ ᴏғғᴛᴀʙ ǫᴜɪᴛᴇ ᴀ ʙɪᴛ {ɪʟʟ sᴏᴍᴇᴛɪᴍᴇs ᴜsᴇ ᴍʏ ᴀғᴋ/ᴏғғᴛᴀʙ ᴘᴏɴʏ} ✰
 
-i usually wont be the first person to start convos 
+ɪ ᴜsᴜᴀʟʟʏ ᴡᴏɴᴛ ʙᴇ ᴛʜᴇ ғɪʀsᴛ ᴘᴇʀsᴏɴ ᴛᴏ sᴛᴀʀᴛ ᴄᴏɴᴠᴏs ✰
 
-please dont copy my skins {this happened to me once...} or take inspo pretty please with cherries on top!!!!!!! 
+ᴘʟᴇᴀsᴇ ᴅᴏɴᴛ ᴄᴏᴘʏ ᴍʏ sᴋɪɴs {ᴛʜɪs ʜᴀᴘᴘᴇɴᴇᴅ ᴛᴏ ᴍᴇ ᴏɴᴄᴇ...} ᴏʀ ᴛᴀᴋᴇ ɪɴsᴘᴏ ᴘʀᴇᴛᴛʏ ᴘʟᴇᴀsᴇ ᴡɪᴛʜ ᴄʜᴇʀʀɪᴇs ᴏɴ ᴛᴏᴘ!!!!!!! ✰
 
-always able to interact!
+ᴜsᴜᴀʟʟʏ ᴀʟᴡᴀʏs ᴀʙʟᴇ ᴛᴏ ɪɴᴛᴇʀᴀᴄᴛ! ✰
+-+ ☁️
+
+
 
 𝘵𝘢𝘪𝘭𝘴 𝘧𝘢𝘯! 
 🍻
