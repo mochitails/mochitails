@@ -17,7 +17,7 @@ please dont copy my skins {this happened to me once...} or take inspo pretty ple
 
 always able to interact!
 
-𝘵𝘢𝘪𝘭𝘴 𝘧𝘢𝘯! 💖
+𝘵𝘢𝘪𝘭𝘴 𝘧𝘢𝘯! 
 🍻
 <!--
 **mochitails/mochitails** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
