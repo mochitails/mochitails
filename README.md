@@ -1,8 +1,4 @@
 ### ., heeey! ✨
-
-<!--
-**mochitails/mochitails** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
 hi im mochi!!
 
 introvert
@@ -14,3 +10,7 @@ i usually wont be the first person to start convos
 please dont copy my skins {this happened to me once...} or take inspo pretty please with cherries on top!!!!!!! 
 always able to interact!
 🍻
+<!--
+**mochitails/mochitails** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+
+
