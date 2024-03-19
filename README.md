@@ -1,8 +1,6 @@
 ### ., нєєєγ! ✨
 【 hi im mochi!!
 
-![image](https://github.com/mochitails/mochitails/assets/162510444/d86a70e1-5784-46cb-a1b6-1f0bb2518e00)
-
 
 ![Screenshot 2024-03-19 151118](https://github.com/mochitails/mochitails/assets/162510444/d855de8b-6b44-4b6d-ac0a-763e4158e5bd)
 
