@@ -1,7 +1,8 @@
 ### ., нєєєγ! ✨
 hi im mochi!!
 
-![Screenshot 2024-03-06 121858](https://github.com/mochitails/mochitails/assets/162510444/0bf881b9-8e75-4663-acf7-8359ee98be55)
+![Screenshot 2024-03-19 151118](https://github.com/mochitails/mochitails/assets/162510444/d855de8b-6b44-4b6d-ac0a-763e4158e5bd)
+
 
 "Yσυ ωєгє ωєıгd, тσσ. βυт γσυ ωєгє α ιєgєηd. Tнαт мαdє мє тнıηĸ, мαγвє вєıηg ωєıгd ısη'т sσ вαd."
 
