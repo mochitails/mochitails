@@ -29,6 +29,9 @@ hi im mochi!!
 
 𝘵𝘢𝘪𝘭𝘴 𝘧𝘢𝘯! 
 🍻
+
+![Screenshot 2024-03-19 134203](https://github.com/mochitails/mochitails/assets/162510444/aaeefb46-b432-4cc9-8e85-9353b23f5c16)
+
 <!--
 **mochitails/mochitails** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
