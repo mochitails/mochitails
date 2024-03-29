@@ -38,6 +38,10 @@
 
 ![Screenshot 2024-03-19 134203](https://github.com/mochitails/mochitails/assets/162510444/aaeefb46-b432-4cc9-8e85-9353b23f5c16)
 
+
+---------------✰---------------
+
+
 i also really really like this guy! ⤵
 
 ![Screenshot 2024-03-19 202050](https://github.com/mochitails/mochitails/assets/162510444/cd03fe08-95c7-4a15-be27-7f0208e32dca)
