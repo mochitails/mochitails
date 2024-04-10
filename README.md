@@ -35,7 +35,9 @@
 
 ![e](https://github.com/mochitails/mochitails/assets/162510444/642c1a6a-b124-4c06-80bc-45dfb5583d91)
 
-// ᴛᴀɪʟs ғᴀɴ 🍦
+𝕋𝔸𝕀𝕃𝕊 𝔽𝔸ℕ!! 🎧
+
+нανє α ωαγ ραsт ¢σσι dαγ!
 
 ![Screenshot 2024-03-19 134203](https://github.com/mochitails/mochitails/assets/162510444/d6173055-c2b6-4672-88ca-b45e474c190f)
 
