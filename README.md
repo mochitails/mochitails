@@ -41,7 +41,7 @@
 
 ![Screenshot 2024-03-19 134203](https://github.com/mochitails/mochitails/assets/162510444/d6173055-c2b6-4672-88ca-b45e474c190f)
 
-✭
+-✭
 
 <!--
 **mochitails/mochitails** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
