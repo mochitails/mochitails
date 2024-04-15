@@ -48,7 +48,8 @@
 
 ✭【 -----✰-----✰-----✰-----✰-----✰-----✰-----✰-----✰-----✰----- 】✭
 
-![Screenshot 2024-04-15 162805](https://github.com/mochitails/mochitails/assets/162510444/f8f5210d-f3c4-4a99-b9e2-8750d9ec9a0f)
+
+![Screenshot 2024-04-11 194017](https://github.com/mochitails/mochitails/assets/162510444/fb11f89a-9f72-470e-9805-1683cc21c97e)
 
 
 ➤ 𝕋𝔸𝕀𝕃𝕊 𝔽𝔸ℕ!! 🎧
