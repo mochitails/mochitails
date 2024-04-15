@@ -1,4 +1,6 @@
-![Screenshot 2024-04-15 161723](https://github.com/mochitails/mochitails/assets/162510444/baf2f704-faee-47f7-8593-16bc43ffda02)
+
+![Screenshot 2024-04-15 165754](https://github.com/mochitails/mochitails/assets/162510444/9f6b20cb-4159-4fc6-ae86-36906949c6f5)
+
 
 ✭【 -----✰-----✰-----✰-----✰-----✰-----✰-----✰-----✰-----✰----- 】✭
 
