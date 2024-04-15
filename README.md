@@ -36,7 +36,8 @@
 
 ♡. 𝕠𝕥𝕙𝕖𝕣 𝕥𝕙𝕒𝕟 𝕥𝕙𝕒𝕥, 𝕗𝕖𝕖𝕝 𝕗𝕣𝕖𝕖 𝕥𝕠 𝕚𝕟𝕥!
 
-![Screenshot 2024-04-15 164318](https://github.com/mochitails/mochitails/assets/162510444/d6ef047d-a423-4c1b-8c7e-bbf0787b6e6d)
+![Screenshot 2024-04-15 165515](https://github.com/mochitails/mochitails/assets/162510444/912b13f3-95d5-438d-934d-b8caf10e31d4)
+
 
 
 ➤ 𝒓𝒂𝒏𝒅𝒐𝒎 𝒔𝒕𝒖𝒇𝒇 𝒕𝒉𝒂𝒕 𝒊 𝒍𝒊𝒌𝒆:
