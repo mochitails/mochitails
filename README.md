@@ -62,7 +62,7 @@
 
 ![Screenshot 2024-04-15 170157](https://github.com/mochitails/mochitails/assets/162510444/a76f0403-d4f5-44df-86f6-e9ddbd33c081)
 
-sʜᴏᴜᴛᴏᴜᴛ ᴛᴏ ᴀʟʟ ᴍʏ ʙᴇsᴛɪᴇs!
+. ♡ sʜᴏᴜᴛᴏᴜᴛ ᴛᴏ ᴀʟʟ ᴍʏ ʙᴇsᴛɪᴇs!
 
 -✭
 
