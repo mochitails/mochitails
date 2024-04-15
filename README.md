@@ -40,7 +40,8 @@
 
 -----------------------------------------------------------------------✭
 
-![Screenshot 2024-04-15 155231](https://github.com/mochitails/mochitails/assets/162510444/22e92cee-c252-4c56-bf58-c73d07785c5f)
+![Screenshot 2024-04-15 162805](https://github.com/mochitails/mochitails/assets/162510444/f8f5210d-f3c4-4a99-b9e2-8750d9ec9a0f)
+
 
 𝕋𝔸𝕀𝕃𝕊 𝔽𝔸ℕ!! 🎧
 
