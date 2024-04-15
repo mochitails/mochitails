@@ -56,7 +56,8 @@
 
 ,. нανє α ωαγ ραsт ¢σσι dαγ!
 
-![Screenshot 2024-03-19 134203](https://github.com/mochitails/mochitails/assets/162510444/d6173055-c2b6-4672-88ca-b45e474c190f)
+![Screenshot 2024-04-15 170639](https://github.com/mochitails/mochitails/assets/162510444/2267f2a6-1999-44fb-be98-d19ad20c0dd5)
+
 
 『☁️』
 
