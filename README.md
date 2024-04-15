@@ -11,8 +11,8 @@
 "ɪ ᴡᴀɴɴᴀ ғʟʏ ʜɪɪɪɪɪɢʜʜʜ!"/ly
 
 『🍻』
+![Screenshot 2024-04-15 155848](https://github.com/mochitails/mochitails/assets/162510444/47cf3b29-9825-4f6f-b5b0-b2e143b5fb0a)
 
-![Screenshot 2024-03-25 091009](https://github.com/mochitails/mochitails/assets/162510444/95e80687-bd13-4257-bdbf-5760b87953c0)
 
 -----------------------------------------------------------------------✭
 
