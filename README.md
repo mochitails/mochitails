@@ -30,6 +30,15 @@
 
 ✭【 -----✰-----✰-----✰-----✰-----✰-----✰-----✰-----✰-----✰----- 】✭
 
+➤ ✰ ` GOOFY AHH GALLERY: ,
+
+![Screenshot 2024-04-07 164735](https://github.com/mochitails/mochitails/assets/162510444/7ed1ab18-c59a-4165-8f57-1277a427b3fd)
+![Screenshot 2024-04-30 123921](https://github.com/mochitails/mochitails/assets/162510444/3fd6195c-acb6-446a-8e4d-8704ac02799a)
+![Screenshot 2024-03-07 195811](https://github.com/mochitails/mochitails/assets/162510444/277152fc-a7d2-4435-9b54-f9eba4fd67f8)
+![Screenshot 2024-04-30 124415](https://github.com/mochitails/mochitails/assets/162510444/fdd37f26-7fbe-4f75-b37b-cf95eafc7a9a)
+
+
+
 
 
 <!--
