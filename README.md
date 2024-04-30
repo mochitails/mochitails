@@ -1,5 +1,6 @@
 
-![isntitlovely](https://github.com/mochitails/mochitails/assets/162510444/327f4df6-3f71-4048-bdf8-161842f6a60f)
+![insntitlovelysmall](https://github.com/mochitails/mochitails/assets/162510444/ea94272e-ec69-4879-91af-14c171161aa1)
+
 
 𝕌ℕ𝔻𝔼ℝ ℂ𝕆ℕ𝕊𝕋ℝ𝕌ℂ𝕋𝕀𝕆ℕ !
 
