@@ -5,12 +5,7 @@
 
 ✭【 -----✰-----✰-----✰-----✰-----✰-----✰-----✰-----✰-----✰----- 】✭
 
-### ., нєєєγ! ✨
-
-➤ 𝚒𝚖 𝚖𝚘𝚌𝚑𝚒! ;; 【 𝗺𝗶𝗻𝗼𝗿 & 𝗶𝗻𝘁𝗿𝗼𝘃𝗲𝗿𝘁 
-
-
-『🍻』⠀
+### ., Ah-rah, dee Soo-guh-goo-gee-goo-gee Goo-guh fli-goo gee-goo Guh fli-goo, ga-goo-buh-dee Ooh, guh-goo-bee Ooh-guh-guh-bee-guh-guh-bee Fli-goo gee-goo A-fliguh woo-wa mama Lucifer ✨
 
 ✭【 -----✰-----✰-----✰-----✰-----✰-----✰-----✰-----✰-----✰----- 】✭
 
@@ -34,17 +29,7 @@
 
 ✭【 -----✰-----✰-----✰-----✰-----✰-----✰-----✰-----✰-----✰----- 】✭
 
-➤ 𝕋𝔸𝕀𝕃𝕊 𝔽𝔸ℕ!! 🎧
 
-` нανє α ωαγ ραsт ¢σσι dαγ! ,
-
-『☁️』
-
-![Screenshot 2024-04-15 170157](https://github.com/mochitails/mochitails/assets/162510444/a76f0403-d4f5-44df-86f6-e9ddbd33c081)
-
-. ♡ sʜᴏᴜᴛᴏᴜᴛ ᴛᴏ ᴀʟʟ ᴍʏ ʙᴇsᴛɪᴇs!
-
--✭
 
 <!--
 **mochitails/mochitails** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
