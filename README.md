@@ -1,4 +1,4 @@
-<p align=center>
+<p align="center">
 
 
 ![tarotcards](https://github.com/user-attachments/assets/7b0c6fd5-2ef8-4299-bdee-3d351690facc)
@@ -15,6 +15,8 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀★
 
+
+</p>
 <!--
 
 **mochitails/mochitails** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
