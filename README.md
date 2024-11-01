@@ -1,7 +1,7 @@
 <p align="center">
 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![soniccakes3](https://github.com/user-attachments/assets/44a15347-f13c-450b-9a5c-e62707d1990f)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 
 
