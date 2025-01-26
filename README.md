@@ -17,7 +17,7 @@
 <img src="https://github.com/user-attachments/assets/93e63cee-7fa6-40f0-a495-0dbcfe91033d"/> 
 </p>
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[![Hits](https://hits.seeyoufarm.com/api/count/incr/badge.svg?url=https%3A%2F%2Fgithub.com%2Fmochitails%2Fhit-counter&count_bg=%2300A1B3&title_bg=%23EC7B1B&icon=github.svg&icon_color=%23FFFFFF&title=hello%21&edge_flat=false)](https://hits.seeyoufarm.com)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[![Hits](https://hits.seeyoufarm.com/api/count/incr/badge.svg?url=https%3A%2F%2Fgithub.com%2Fmochitails%2Fhit-counter&count_bg=%2300A1B3&title_bg=%23EC7B1B&icon=github.svg&icon_color=%23FFFFFF&title=hello%21&edge_flat=false)](https://hits.seeyoufarm.com)
 
 #
 
