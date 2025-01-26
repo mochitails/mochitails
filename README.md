@@ -3,11 +3,12 @@
 
 
 <p align="center">
-✦
+★
 </p>
 
 <p align="center">
-<img src="https://github.com/user-attachments/assets/0925c1da-5d10-45f3-a4ac-ee56d9b374b2"/> </p>
+<img src="https://github.com/user-attachments/assets/517e2f7b-dc9b-4f3e-9120-8494e2625c84"/> </p>
+
 
 
 <p align="center">
