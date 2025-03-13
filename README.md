@@ -6,19 +6,19 @@
 
 
 <p align="center">
-<code style="color : blue">' 𝙝𝙚𝙮, 𝙞'𝙡𝙡 𝙥𝙡𝙖𝙮 𝙬𝙞𝙩𝙝 𝙮𝙤𝙪 𝙨𝙤𝙢𝙚 𝙤𝙩𝙝𝙚𝙧 𝙩𝙞𝙢𝙚! '</code>
+<code style="color : blue">' 𝙖𝙧𝙚 𝙮𝙤𝙪 𝙛𝙖𝙡𝙡𝙞𝙣𝙜 𝙞𝙣 𝙡𝙤𝙫𝙚? 𝙞'𝙫𝙚 𝙖 𝙛𝙚𝙚𝙡𝙞𝙣𝙜 𝙮𝙤𝙪 𝙖𝙧𝙚... '</code>
 </p>
 
 <p align="center">
-<img src="https://github.com/user-attachments/assets/128f8b4b-a123-4e5a-af51-740f04b4450a"/> 
+<img src="https://github.com/user-attachments/assets/4a7efbf2-4768-4ab4-800f-c6f23753a10b"/> 
 </p>
 
 
 <p align="center">
-<img src="https://github.com/user-attachments/assets/93e63cee-7fa6-40f0-a495-0dbcfe91033d"/> 
+<img src="https://github.com/user-attachments/assets/09d89173-b85a-46ba-a177-f8de43679ac1"/> 
 </p>
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[![Hits](https://hits.seeyoufarm.com/api/count/incr/badge.svg?url=https%3A%2F%2Fgithub.com%2Fmochitails&count_bg=%23004D81&title_bg=%2300969D&icon=github.svg&icon_color=%2300477C&title=hello%21&edge_flat=false)](https://hits.seeyoufarm.com)
+
 
 #
 
