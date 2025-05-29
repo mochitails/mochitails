@@ -6,7 +6,7 @@
 
 
 <p align="center">
-<code style="color : yellow">' 𝙖𝙣𝙙 𝙞 𝙨𝙩𝙖𝙧𝙩 𝙩𝙤 𝙘𝙧𝙮 𝙚𝙖𝙘𝙝 𝙩𝙞𝙢𝙚 𝙬𝙚 𝙢𝙚𝙚𝙩, 𝙬𝙖𝙡𝙠 𝙤𝙣 𝙗𝙮 .ᐟ '</code>
+<code style="color : yellow">' 𝙘𝙢𝙤𝙣, 𝙞𝙢 𝙧𝙚𝙖𝙙𝙮 𝙩𝙤 𝙜𝙖𝙢𝙗𝙡𝙚, 𝙞𝙩'𝙨 𝙩𝙞𝙢𝙚 𝙩𝙤 𝙥𝙡𝙖𝙮 𝙩𝙝𝙚 𝙜𝙖𝙢𝙚 .ᐟ '</code>
 </p>
 
 
