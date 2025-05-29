@@ -1,4 +1,4 @@
-***
+
 
 <p align="center">
 ✦  
@@ -10,13 +10,9 @@
 </p>
 
 
-
-
 <p align="center">
-<img src="https://github.com/user-attachments/assets/bf41cd9e-d7bb-45fc-b8aa-12e5f1a6a33a"/> 
+-
 </p>
-
-***
 
 </p>
 
