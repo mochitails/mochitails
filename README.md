@@ -6,7 +6,7 @@
 
 
 <p align="center">
-<code style="color : yellow">' 𝙞𝙩𝙨 𝙣𝙤𝙩 𝙧𝙚𝙖𝙡, 𝙞𝙩𝙨 𝙣𝙤𝙩 𝙧𝙚𝙖𝙡...𝙗𝙪𝙩 𝙞𝙩 𝙛𝙚𝙚𝙡𝙨 𝙧𝙚𝙖𝙡. '</code>
+<code style="color : yellow">' 𝙖𝙣𝙙 𝙞 𝙨𝙩𝙖𝙧𝙩 𝙩𝙤 𝙘𝙧𝙮 𝙚𝙖𝙘𝙝 𝙩𝙞𝙢𝙚 𝙬𝙚 𝙢𝙚𝙚𝙩, 𝙬𝙖𝙡𝙠 𝙤𝙣 𝙗𝙮 .ᐟ '</code>
 </p>
 
 
