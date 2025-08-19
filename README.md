@@ -11,6 +11,7 @@
 
 
 <p align="center">
+<img width="736" height="503" alt="soniccutebannergit" src="https://github.com/user-attachments/assets/8565994c-901a-482a-bb38-d55c8e93305a" />
 <img width="277" height="150" alt="Screenshot 2025-08-16 170631" src="https://github.com/user-attachments/assets/06098882-c5cc-408a-bbb4-660298c7e8f1" />
 </p>
 
