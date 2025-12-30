@@ -6,16 +6,16 @@
 
 
 <p align="center">
-<code style="color : yellow">' 𝙬𝙝𝙖𝙩 𝙮𝙤𝙪 𝙨𝙚𝙚 𝙞𝙨 𝙬𝙝𝙖𝙩 𝙮𝙤𝙪 𝙜𝙚𝙩 .ᐟ '</code>
+<code><3</code> 
 </p>
 
 
 <p align="center">
-<img width="600" height="410" alt="soniccutebannergit2" src="https://github.com/user-attachments/assets/986cc826-3e10-433a-b744-36589fdff3ad" />
+
 </p>
 
 <p align="center">
-═══════ 🌀 ═══════
+
 </p>
 
 </p>
