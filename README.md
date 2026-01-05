@@ -6,7 +6,7 @@
 
 
 <p align="center">
-<bold>✦</bold>
+<strong>ꕀ</strong>
 </p>
 ⠀
 ⠀
